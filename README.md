@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+am dylan, a south sudanese raised in kenya
